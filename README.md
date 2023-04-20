@@ -1,0 +1,1 @@
+# adiyasuren.bayanmunkh.com
